@@ -1,8 +1,12 @@
-## Who are we?
+## Who Are We?
 
 ### Our Team
 
-### What do we do?
+### What Do We Do?
+
+#### Our Mission
+
+#### Our Vision
 
 ## Our Products
 
